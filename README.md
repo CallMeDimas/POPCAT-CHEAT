@@ -27,4 +27,4 @@ Kode Ini Di Buat Oleh ChatGPT Dengan Sepenuh Komputasi Mesin
 
 # DISCORD 
 
-`ZHARX#2244`
+`@ZLucifer_`
